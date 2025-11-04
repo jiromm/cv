@@ -1,4 +1,4 @@
-# Resume
+# Aram Baghdasaryan | Resume
 
 Chief Technology Officer | Software Architect | Software Engineer  
 [aram.baghdasaryan@gmail.com](mailto:aram.baghdasaryan@gmail.com) | \+374 93 591459  
